@@ -17,9 +17,10 @@
  <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/a4456f10-c9b2-41a3-ac5d-3a0acb8fb0c7" /> <mark style="background-color: #c93869; color: black; padding: 2px 6px; border-radius: 4px;">..really into minecraftpvp, args & roleplaysmps ᶻz ..</mark> <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/a4456f10-c9b2-41a3-ac5d-3a0acb8fb0c7" />
 </p>
 
+<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b6f29b19-3018-4b26-afa2-9be6e00189a0" /> <mark style="#c93869; color: black; padding: 2px 6px; border-radius: 4px;"> DNI dteam fan, boundary breaker, just a problematic person.
+ ᶻz ..</mark> <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/057db49a-ead4-4dd9-9727-dd332b8f85ba" />
 
 <div align="center">
-<p><img width="216" height="21" alt="Image" src="https://github.com/user-attachments/assets/2ef9c3e4-8f5c-4868-80f7-bdba6436c376" /></p>
-</p>
+<img width="216" height="21" alt="Image" src="https://github.com/user-attachments/assets/2ef9c3e4-8f5c-4868-80f7-bdba6436c376" /></p>
 
 <img width="500" height="7" alt="Image" src="https://github.com/user-attachments/assets/4d34d3d6-74d4-4008-9162-f1201dab974f" />
