@@ -17,7 +17,7 @@
  <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/a4456f10-c9b2-41a3-ac5d-3a0acb8fb0c7" /> <mark style="background-color: #c93869; color: black; padding: 2px 6px; border-radius: 4px;">..really into minecraftpvp, args & roleplaysmps ᶻz ..</mark> <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/a4456f10-c9b2-41a3-ac5d-3a0acb8fb0c7" />
 </p>
 
-<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b6f29b19-3018-4b26-afa2-9be6e00189a0" /> <mark style="#c93869; color: black; padding: 2px 6px; border-radius: 4px;"> DNI dteam fan, boundary breaker, just a problematic person.
+<img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/b6f29b19-3018-4b26-afa2-9be6e00189a0" /> <mark style="#c93869; color: black; padding: 2px 6px; border-radius: 4px;"> DNI basic criteria, dteam supporter, boundary breaker, just a problematic person.
  ᶻz ..</mark> <img width="26" height="21" alt="Image" src="https://github.com/user-attachments/assets/057db49a-ead4-4dd9-9727-dd332b8f85ba" />
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/d7d38191-07a6-4a46-af3f-39a908b1f8d9" /> <mark style="#c93869; color: black; padding: 2px 6px; border-radius: 4px;"> i am really shy so i am a little difficult to make new friends so sorry if i dont int with you..</mark> <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/d7d38191-07a6-4a46-af3f-39a908b1f8d9" />
